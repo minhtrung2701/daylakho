@@ -1,2 +1,0 @@
-# daylakho
-kho
